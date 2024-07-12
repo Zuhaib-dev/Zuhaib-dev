@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Zuhaib-dev
+- 👀 I’m interested in web devlopment
+- 🌱 I’m currently learning web-dev
+- 📫 Contact  xuvaxuva006@gmail.com
+- 
